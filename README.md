@@ -1,0 +1,1 @@
+HomeTech specializes in smart and energy-efficient home appliances. We are committed to offering modern, convenient, and eco-friendly living experiences. With innovative designs, HomeTech helps customers enjoy a more comfortable and efficient lifestyle.
